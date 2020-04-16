@@ -1,3 +1,4 @@
+![](https://lh3.googleusercontent.com/p5AzIi7uKe7mFPFqfx06LyeVbZL7yJBZyWIrDuMaoHpU5rxsARB2pPX5SgWXv0hR-2RSaDJbmaerC94Ek7e5dP7Js3kaWTfOs5UoNXpKayT-tFf410zCSalLETCTtDV26l-OhLzHn0VW160Tajs2jpkZEqeR3Ru_2265gyuhRzFzWvwqnY6b0hWuL9jFSs-fT72eOHeAvQ_gnf477M6u-ECTjzaN1Hy90WtfwAcFPTSDfo_4E6XorqIa0bwRX-4uK5QBYbv6c-Qm_FT1TiD4HlgLOLvTBOCnslV4YUU7u5qSfeesrovPUbpCcs0XlezavdVmemQFwx9XOEwRuLBxh9t-kfZMF6Yzz_B4nRT2yGf1iZZoTVGt6GE6pfqFIz78OEK27KLIejeyU5SgL3rkbCnTkA9YFpubT7K_usdgPfpCTQPIAna0BQ3gDIVG1po4ueEnszdSOMi-cn-fz-lZTJ6mG53HAGzq50RJIfW4wij52EedjglvegWiAk9825hEbvtUDiGQ9OC2OabQ6MOs21yV5EKdVDa-G0kyscD9TXncKH3Jv7vL-YkupLOGuKxs9uJyQylRWXUT7QeAys2Wae6IFSI0cWvnbp5yreabJqhLX-NApYe6GpJcAFHXGzQN5x8sdV1gOngjITDvpeejyak9jtrpECC83loO5k-Wr0olH9QuJsRcDIKIX0oI=w263-h351-no)
 
 ## Información:
 **Nombre**: Barriola Facundo
@@ -9,3 +10,5 @@
 **Formación**: Colegio Santo Tomás de Aquino
 
 **Ciudad**: Campana
+
+**Hobbies**: Tocar el bajo y hacer ejercicio
